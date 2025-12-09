@@ -1,5 +1,7 @@
 ```
-
+We work in the dark - we do what we can - we give what we have.
+Our doubt is our passion, and our passion is our task.
+The rest is the madness of art
 ```
 <!--
 
